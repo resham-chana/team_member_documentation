@@ -2,7 +2,7 @@
 
 ### Resham Chana (She/They)
 - Resh is fine
-- My full name is pronounced rAE-shum or [ਰੇਸ਼ਮ](https://www.discoversikhism.com/punjabi/punjabi_gurmukhi_alphabet.html)
+- My full name is pronounced rERE-shum or [ਰੇਸ਼ਮ](https://www.discoversikhism.com/punjabi/punjabi_gurmukhi_alphabet.html)
 - Statistician (HEO)
 - Preferred hours: 9.30–5.30
 - I live in Leicester
@@ -33,7 +33,8 @@
 ---
 
 ### The job and my background
-- I am working on publications relating to SFI, CS and ES. Things like uptake, payments and geographic breakdowns. 
-- I am badged GORS and GSG
+- I am currently working for the government as a Data Scientist.
+- I am interested in computer vis and NLP. 
+- I am badged [GORS](https://www.gov.uk/government/organisations/civil-service-government-operational-research-service/about) and [GSG](https://analysisfunction.civilservice.gov.uk/government-statistical-service-and-statistician-group/the-gss-government-professions-and-analysis-function/)
 - I have a maths degree and a data science master's.
-- I have worked at the Department for Education and the Home Office before coming to Defra in 2022.
+- I have worked at the Department for Education, Home Office, Defra and local government.
