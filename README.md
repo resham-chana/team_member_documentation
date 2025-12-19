@@ -10,7 +10,7 @@
 - I’m an INFJ
 - I recently got married
 - I am the B in LGBTQ+
-- I am vegan
+- I am veggie
 
 ---
 
