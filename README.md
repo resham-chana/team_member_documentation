@@ -3,8 +3,7 @@
 ### Resham Chana (She/They)
 - Resh is fine
 - My full name is pronounced rERE-shum or [ਰੇਸ਼ਮ](https://www.discoversikhism.com/punjabi/punjabi_gurmukhi_alphabet.html)
-- Statistician (HEO)
-- Preferred hours: 9.30–5.30
+- Preferred hours: 8–4
 - I live in Leicester
 - I’m [Punjabi](https://en.wikipedia.org/wiki/Punjabis)
 - I’m an INFJ
@@ -20,6 +19,7 @@
 - Gentle written feedback is preferred
     - And feedback that is [**Balanced/ObjectIve/Specific/Timely**](https://www.revolutionlearning.co.uk/article/the-boost-feedback-model/)
 - When you give me a task please email me with a breakdown in a list format.
+    - I will do the same when I give a task to you.
 
 ---
 
