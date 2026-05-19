@@ -4,7 +4,6 @@
 - Resh is fine
 - My full name is pronounced rERE-shum or [ਰੇਸ਼ਮ](https://www.discoversikhism.com/punjabi/punjabi_gurmukhi_alphabet.html)
 - Preferred hours: 8–4
-- I live in Leicester
 - I’m [Punjabi](https://en.wikipedia.org/wiki/Punjabis)
 - I’m an INFJ
 - I recently got married
