@@ -1,6 +1,6 @@
 # About me:
 
-### Resham Chana (She/They)
+### Resham Chana (She/Her)
 - Resh is fine
 - My full name is pronounced rERE-shum or [ਰੇਸ਼ਮ](https://www.discoversikhism.com/punjabi/punjabi_gurmukhi_alphabet.html)
 - Preferred hours: 8–4
